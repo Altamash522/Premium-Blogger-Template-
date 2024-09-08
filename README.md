@@ -1,2 +1,1 @@
-# Premium-Blogger-Template-
-/Median UI 1.7 Premium.xml
+Median UI 1.7 Premium Wich WhatsApp Chat.xml #Premium-Blogger-Template-
